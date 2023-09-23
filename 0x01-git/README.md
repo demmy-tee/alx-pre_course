@@ -1,1 +1,2 @@
-daniel is a grea man
+daniel is a great man
+I'm going to the greatest places
